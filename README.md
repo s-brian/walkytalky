@@ -1,2 +1,0 @@
-"# walkytalky" 
-"# walkytalky" 
